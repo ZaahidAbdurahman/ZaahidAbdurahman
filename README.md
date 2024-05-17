@@ -2,6 +2,6 @@
 - 👀 I’m interested in Information Technology
 - 🌱 I’m currently learning Data Analytics
 - 📫 How to reach me <a href="mailto:abdurahmanzaahid1@gmail.com">Email </a>
-- 😄 Pronouns: he/him
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: Great Gamer
 
