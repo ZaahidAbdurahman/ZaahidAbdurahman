@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning SQL
 - 📫 How to reach me <a href="mailto:abdurahmanzaahid1@gmail.com">Email </a>
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Great Gamer
+- ⚡ Fun fact: Great Gamer/ Runner
 
 
